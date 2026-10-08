@@ -35,7 +35,7 @@ Plats i productes típics que has de tastar:
 ## Què posar a la maleta
 
 - Sabates còmodes (***els carrers són molt costeruts***)
-- Paraigües o impermeable lleuger
+- Paraigües
 - Roba d'abric per a les nits
 - Càmera de fotos
 
