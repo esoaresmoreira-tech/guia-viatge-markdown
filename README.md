@@ -40,5 +40,4 @@ Plats i productes típics que has de tastar:
 - Càmera de fotos
 
 ## Més informació
-
 Pots llegir més sobre la ciutat a la [Viquipèdia](https://ca.wikipedia.org/wiki/Porto).
