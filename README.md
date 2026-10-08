@@ -20,7 +20,7 @@ Aquest és el meu **itinerari recomanat** per a un dia a Porto:
 2. **Torre dels Clérigos**: puja-hi per gaudir d'unes **vistes espectaculars** de la ciutat.
 3. **Barri de la Ribeira**: passeja a la vora del riu *entre cafès i terrasses*.
 4. **Pont Dom Luís I**: creua'l a peu fins a **Vila Nova de Gaia**.
-5. **Caves de vi de Porto**: fes una visita i *tasta el vi* allà on es fa. **El meu pare hi va treballar!**
+5. **Caves de vi de Porto**: fes una visita i *tasta el vi* allà on es fa. **¡El meu pare hi va treballar!**
 
 ## Gastronomia
 
